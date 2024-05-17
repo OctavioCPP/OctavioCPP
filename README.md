@@ -1,0 +1,5 @@
+- 🙋‍♂️Hi, i'm Octavio, i'm 18 years old, currently live in Bogota Colombia as a student of Electrical Engineering at National University of Colombia, but i am also interested on web design and the world of programming.
+- 💻I'm Currently learning web design, it started as a hobby and fastly become in something i really enjoy and where i can also obtain more laboral opportunities, and knowledge.
+- 🍃I love animals, nature and free pollution places. 
+- ❤️I'm an empatical and sensitive person, i have allways care my loved ones
+- 💡I love lerning new things
